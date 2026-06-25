@@ -32,9 +32,42 @@
     <p>I'm FTM, gay, verispike (I sometimes experience attraction towards women), reciproromantic, genderfawn, polarsexual, and more. I might make a pronouns page eventually.</p>
     <p>I'm neurodivergent and deal with pretty severe 𝗔𝗩𝗣𝗗 + 𝗔𝘂𝗗𝗛𝗗 + and 𝗕𝗣𝗗.</p>
     <p>Side note: No, my diagnoses are NOT listed to excuse my behavior. They're there because they influence how I function, and because there are many things I either can't fully control or don't immediately notice about my own behavior. Consider it a warning, not an excuse. </p>
+      </div>
+</details>
+<br>
+
+<details>
+  <summary><ins>𝕯𝗜𝗦𝖢𝖮𝖱𝖣</ins></summary>
+
+  <div align="center">
+    <p>Please ALWAYS use <a href="tone tags / tone indicators https://share.google/qLIS9jtX2wtVYLsEM">tonetags</a> if you're chatting with me.
+    <p>Atm, I'm nowhere near as active on Discord as I used to be (I spend most of my time with my girlfriend now), though I still check in from time to time to see what's going on.</p>
+    <p>ALWAYS ASK BEFORE sending a friend request or DMing me. Most of the time I don't add people, and I won't be the one sending friend requests either (Asking doesn't automatically mean I'll accept your request, btw)</p>
+        <p>If I ever find out you're screenshotting our DMs or recording private voice conversations without my knowledge, I will never speak to you again.</p>
+    <p>If you need a response urgently or something important comes up, pings will always be okay.</b></p>
+    <p>I do NOT do private voice calls through DMs. Please don't insist. I've never liked them.</p>
+    <p>If I join a group VC, don't expect me to talk much, and definitely don't expect me to stay for the entire call. I only do that with close friends, and even then, only sometimes.<p>
+    <p>Lurking is my default state. Just because I'm there doesn't mean I'm participating.<p>
+    <p>Double texting and spamming is fine ONLY IF CLOSE.</p>
+    <p>I'm socially awkward in ways that should be studied.</p>
+    <p>I often leave messages unread, unanswered, or half-read for LONG periods of time.</p>
+    <p>Do not expect the same level of attention, or energy that I give to my close friends.</p>
+    <p>If I remove, block, or distance myself from you, DO NOT ATTEMPT to contact me through alternative accounts, mutual friends, or other platforms.</p>
+<p>Please do not ask for face reveals, voice reveals, personal information, or pics.</p>
+<p>I may leave in the middle of conversations without warning.</p>
+<p>I do not owe anyone constant communication.</p>
+<p>I am not good at maintaining friendships consistently.</p>
+<p>Do not make me responsible for your emotional wellbeing.</p>
+<p>Please ask before venting, trauma-dumping, or discussing extremely heavy topics.</p>
+<p>I'm not comfortable being treated as a therapist, counselor, mediator, or emotional support animal.</p>
+<p>I'm NOT interested in joining random servers.</p>
+<p>Do not repeatedly invite me to servers after I have declined.</p>
+<p>Do not randomly add me to group chats.</p>
+<p>I dislike feeling observed, monitored, or constantly checked on.</p>
+<p>Please do not keep track of my status, activity, or online habits.</p>
+<p>Respect my boundaries the first time they are stated.</p>
   </div>
 </details>
-
 <br>
 
 <details>
