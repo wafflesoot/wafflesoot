@@ -22,14 +22,13 @@
 
   <div align="center">
     <p>Hiii! My name is <b>Aspen</b>, and I'm 17 years old. My birthday is on June 4th.</p>
-    <p>Nicknames: <b>Waffle</b>, Baldubu, Velvet, Asp, Star, Spin, Lesbian Spain (?.</p>
+    <p>Nicknames: <b>Waffle</b>, Waffly, Baldubu, Velvet, Asp, Star, Spin, Lesbic Spain (?.</p>
         <p>Pronouns: <b>He, They, It,</b> Angel, Pup/Puppy, Lace, ETC.</p>
     <p>YES. The "Soot" In my user is and always will be for <b>Wilbur Soot.</b></p>
     <p> I'm more Basque than Spanish at this point. I speak Spanish, Basque, English, Russian, and German.</p>
-    <p> I'm 𝗧𝗔𝗞𝗘𝗡, and basically married to my beautiful wifey at this point.<p>
     <p> I have a LOT of labels (mainly xenoids and neopronouns), many of which are contradictory. Yeah, I'm a RADQUEER, so clearly I'm the wokest person alive.<p>
     <p>I'm a semi-verbal INFP 2w4, if that tells you anything about me.</p>
-    <p>I'm FTM, gay, verispike (I sometimes experience attraction towards women), reciproromantic, genderfawn, polarsexual, and more. I might make a pronouns page eventually.</p>
+    <p>I'm FTM, gay, verispike, reciproromantic, genderfawn, polarsexual, and way too more. I might make a pronouns page eventually.</p>
     <p>I'm neurodivergent and deal with pretty severe 𝗔𝗩𝗣𝗗 + 𝗔𝘂𝗗𝗛𝗗 + and 𝗕𝗣𝗗.</p>
     <p>Side note: No, my diagnoses are NOT listed to excuse my behavior. They're there because they influence how I function, and because there are many things I either can't fully control or don't immediately notice about my own behavior. Consider it a warning, not an excuse. </p>
       </div>
@@ -41,7 +40,7 @@
 
   <div align="center">
     <p>Please ALWAYS use <a href="tone tags / tone indicators https://share.google/qLIS9jtX2wtVYLsEM">tonetags</a> if you're chatting with me.
-    <p>Atm, I'm nowhere near as active on Discord as I used to be (I spend most of my time with my girlfriend now), though I still check in from time to time to see what's going on.</p>
+    <p>Atm, I'm pretty active on Discord again</p>
     <p>ALWAYS ASK BEFORE sending a friend request or DMing me. Most of the time I don't add people, and I won't be the one sending friend requests either (Asking doesn't automatically mean I'll accept your request, btw)</p>
         <p>If I ever find out you're screenshotting our DMs or recording private voice conversations without my knowledge, I will never speak to you again.</p>
     <p>If you need a response urgently or something important comes up, pings will always be okay.</b></p>
@@ -75,13 +74,13 @@
 
   <div align="center">
     <p>Please don't do things that are intentionally meant to annoy me. Some things that bother me a lot include covering my skins, copying them, taking inspiration without asking, or uploading screenshots of me to social media.</p>
-    <p>I'm one of those players with a "touch trigger" when it comes to either me or my girlfriend. If I catch you touching my or her skins don't expect a friendly reaction from me.</p>
-    <b>I am NOT responsible for my reactions if you approach my girlfriend.</b>
-<p>"But it's just a social game" I don’t FUCKING care. I will not react well if you approach her or make any kind of advances toward her while I am present. Do not misinterpret politeness or silence as permission, just respect boundaries the first time they are set, not after they are enforced.</p>
-<b>Flirting, insinuations, or unnecessary familiarity toward her in my presence will not be tolerated.</b>
-    <p>Most of the time I'm with my girlfriend. Just because I'm online doesn't mean I'm available or paying attention.</p>
-<b>This is NOT a discussion or an invitation to debate my or her limits.</b>
-<p> </p>
+    <p>I'm one of those players with a "touch trigger". If I catch you touching my skins don't expect a friendly reaction.</p>
+    <b>I am NOT responsible for my reactions if you annoy me on purpose.</b>
+<p>"But it's just a social game" I don’t FUCKING care. Do not misinterpret politeness or silence as permission, just respect boundaries the first time they are set, not after they are enforced.</p>
+<b>Avoid flirting insinuations, or unnecessary familiarity with me.</b>
+    <p>Just because I'm online doesn't mean I'm available or paying attention.</p>
+<b>This is NOT a discussion or an invitation to debate my limits.</b>
+<p>I tend to annoy a lot with some emotes, pls  tell me if that makes you uncomfy.</p>
 <p>I really dislike crowds and hangout spots.<p>
 <p>Friends are allowed to cover me and insult me as a joke.<p>
 <p>Whisper to interact ONLY if it's important, there's a small chance i might see your public message, and anyway, I DON'T LIKE strangers talking to me, this is just for MY FRIENDS.</p>
@@ -90,7 +89,7 @@
 <p>I'd appreciate if you don't ask to rolepay with me or even think i will.<p>
 <p>Don't ever assume that if I'm alone it's because I want people to come and talk to me.<p>
     <p>I ignore all party/rp advertisements in my whispers<p>
-    <p>Copying me and/or my girlfriend, with the knowledge of this action being strongly looked down upon without consent, is an awful action to do, refrain from doing this or otherwise, don't be surprised if I react aggressively towards you.</p>
+    <p>Copying me with the knowledge of this action being strongly looked down upon without consent, is an awful action to do, refrain from doing this or otherwise, don't be surprised if I react aggressively towards you.</p>
     <p>If I don't ask for your social media first, don't try to push for "another place to talk." Yes, I have Discord. No, I won't give it to you just because you asked. I'll share it if I feel like it and I'm comfortable with you.</p>
   </div>
 </details>
@@ -102,20 +101,18 @@
   <div align="center">
     <p>I have behavioral issues, always interact with EXTREME caution OR JUST DON'T INTERACT AT ALL.</p>
     <p>Confrontational and can become hostile towards you.</p>
-    <p>As you may have noticed, I'm extremely attached to my girlfriend. If you make her uncomfortable, insecure, or upset, don't expect me to be understanding about it, I have very little patience when it comes to people crossing her boundaries. Don't take it personally if I block, avoid, or remove you from my space over something involving her. I won't be debating it, and I won't be asking for permission. She will always be my priority. If I feel like I have to choose between keeping you around or keeping her comfortable, the decision will be made instantly. If that sounds unreasonable to you, we probably won't get along.</p>
-    <p>Im extremely jealous with my girlfriend, and I will be hostile If I notice any interaction towards her that makes me uncomfortable.</p>
     <p>I push myself away from people at times even if i like you, I usually tend to be very avoidant, and I tend to ghost friends, please don't take it personally.</p>
     <p>Mixed signals when i don't know whether i like you or not.</p>
     <p>I tend to take my sweet time, don't rush me.</p>
-    <p>Sometimes impulsive towards people, this means doing actions without thinking beforehand.</p>
+    <p>Sometimes impulsive towards people, this means doing actions without thinking beforehand, some actions may include offensive nicknames such as slurs, or just me being a weirdo, pls, tell me if you want me to stop and always tell me if you want me to be more careful about how I interact with you.</p>
     <p>Often blunt and i don't care about a lot of things.<p>
     <p>Respect matters a lot to me, not just towards me but towards others as well.</p>
-    <p>Often apprehensive with friendships.</p>
+    <p>Often apprehensive and kinda jealous with my very close friendships.</p>
     <p>Tired all the time (im just a sleepy pup, zzz).</p>
     <p>Manic episodes can happen, this means i become incredibly mentally unstable (basically crazy) and can't control myself.</p>
     <p>Mood swings, this includes being snappy and aggressive, but i'm always frustrated & angry.</p>
     <p>I get emotionally invested in fictional characters more than the average person.</p>
-    <p>If I disappear, it doesn't necessarily mean I dislike you. I need a lot of personal space and alone time.</p>
+    <p>If I disappear, it doesn't necessarily mean I dislike you. I need A LOT of personal space and alone time.</p>
   </div>
 </details>
 <br>
@@ -145,6 +142,7 @@
   <P>Sexists (Misogynistics, Transmisogynistics, If you think men can be oppressed for being men) </P>
   <p>ㅤㅤ</p>
   <B>SPECIFIC/PERSONAL DNI CRITERIA</B>
+  <p>If you're the type of person who comes with me looking for a relationship and thinks confessing to me after an hour, a few days, or a few weeks of knowing me is a good idea, do both of us a favor: fuck off and get out of my life. I have zero patience for that kind of childish nonsense. Thanks.<p>
   <p>Extremely religious people.</p>
   <p>Anti Wilbur (If you're one of those who call Wilbur an abuser, I don't like you).</p>
   <p>Anti Wilbur Supporters.</p>
@@ -188,8 +186,8 @@
   <summary><ins>❴ 𝕮𝖧𝖠𝖱𝗔𝗖𝗧𝖤𝖱𝖲 ❵</ins></summary>
 
   <div align="center">
-<b>My Oshi:</b>
-    <p>Gilbert Beilschmidt (APH)</b>
+<b>𝕸𝗬  𝗙/𝖮:</b>
+    <p>Gilbert Beilschmidt ♡ (APH)</b>
     <p></p>
 <b>Favorite Characters:</b>
     <p>Gilbert Beilschmidt (APH) ／ Antonio Fernández (APH) ／ Lovino Vargas (APH) ／ Ivan (ALNST) ／ Kaworu Nagisa (NGE) ／ Rei Ayanami (NGE) ／ Will Graham (Hannibal) ／ RevivedBur (DSMP) ／ PogBur (DSMP) ／ GhostBur (DSMP)  ／ D3rlord3 (SFAWTDE) ／  Scratch (TADC)</p>
@@ -237,11 +235,11 @@
 <div align="center">
 <p>ㅤㅤ</p>
   
-### @ 𝕸𝗬ㅤ𝕻𝗥𝗘𝗧𝗧𝗬ㅤ𝖶𝖨𝖥𝖤
+### @ 𝕸𝗬ㅤ𝕻𝗥𝗘𝗧𝗧𝗬ㅤ𝖧𝖴𝖲𝖡𝖠𝖭𝖣
 <p align="center"> 
-<img src="https://files.catbox.moe/nplkoe.png" alt="Girlfriend" width="500" />
+<img src="https://files.catbox.moe/7gvsux.png" alt="Gilbert My Boyfriend" width="500" />
 <br>
-  <sub><b>My favorite person. The gentlest thing to ever happen to me, and somehow the center of my entire world. The first thought I look for in the morning and the last one I keep before I sleep. She's the light of my life, the keeper of my heart, the person who unknowingly occupies every corner of my mind. If love and perfection could take human form, I think it would look a lot like her. My safest place, my greatest comfort, and the most precious thing I have ever been lucky enough to call mine. There are billions of people in this world, and somehow my heart still chooses the same person every single day. My favorite sight, my favorite voice, my favorite soul. The sun may rise for everyone else, but for me, it rises and sets with her, and in every lifetime, every universe, every version of myself, I think I would still find my way back to her. ♡</b></sub>
+  <sub><b>𝕻𝗥𝗢𝗠𝗜𝗦𝗘 𝖨'𝖫𝖫 𝖡𝖤 𝖪𝖨𝖭𝖣 𝕭𝖴𝖳 𝗜 𝐖𝚯𝚴'𝚻 𝗦𝗧𝗢𝗣 𝖴𝖭𝖳𝖨𝖫 𝖳𝖧𝖠𝖳 𝗕𝗢𝗬 𝖨𝖲 𝖬𝖨𝖭𝖤. ♡</b></sub>
 <br>
 <p align="center">
   <img src="https://files.catbox.moe/1rrg2z.png" width="500" />
