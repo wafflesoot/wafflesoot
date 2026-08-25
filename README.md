@@ -27,8 +27,8 @@
     <p>YES. The "Soot" In my user is and always will be for <b>Wilbur Soot.</b></p>
     <p> I'm more Basque than Spanish at this point. I speak Spanish, Basque, English, Russian, and German.</p>
     <p> I have a LOT of labels (mainly xenoids and neopronouns), many of which are contradictory. Yeah, I'm a RADQUEER, so clearly I'm the wokest person alive.<p>
-    <p>I'm a semi-verbal INFP 2w4, if that tells you anything about me.</p>
-    <p>I'm FTM, gay, verispike, reciproromantic, genderfawn, polarsexual, and way too more. I might make a pronouns page eventually.</p>
+    <p>I'm a semi-verbal INFP 4w5, if that tells you anything about me.</p>
+    <p>I'm FTM, gay, reciproromantic, genderfawn, polarsexual, and way too more. I might make a pronouns page eventually.</p>
     <p>I'm neurodivergent and deal with pretty severe 𝗔𝗩𝗣𝗗 + 𝗔𝘂𝗗𝗛𝗗 + and 𝗕𝗣𝗗.</p>
     <p>Side note: No, my diagnoses are NOT listed to excuse my behavior. They're there because they influence how I function, and because there are many things I either can't fully control or don't immediately notice about my own behavior. Consider it a warning, not an excuse. </p>
       </div>
