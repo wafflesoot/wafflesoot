@@ -190,7 +190,7 @@
     <p>Gilbert Beilschmidt ♡ (APH)</b>
     <p></p>
 <b>Favorite Characters:</b>
-    <p>Gilbert Beilschmidt (APH) ／ Antonio Fernández (APH) ／ Lovino Vargas (APH) ／ Ivan (ALNST) ／ Kaworu Nagisa (NGE) ／ Rei Ayanami (NGE) ／ Will Graham (Hannibal) ／ RevivedBur (DSMP) ／ PogBur (DSMP) ／ GhostBur (DSMP)  ／ D3rlord3 (SFAWTDE) ／  Scratch (TADC)</p>
+    <p>Gilbert Beilschmidt (APH) ／ Sadik Adnan (APH) ／ Antonio Fernández (APH) ／ Lovino Vargas (APH) ／ Ivan (ALNST) ／ Kaworu Nagisa (NGE) ／ Rei Ayanami (NGE) ／ Will Graham (Hannibal) ／ RevivedBur (DSMP) ／ PogBur (DSMP) ／ GhostBur (DSMP)  ／ D3rlord3 (SFAWTDE) ／  Scratch (TADC)</p>
 <b>Fictionkins:</b>
     <p>Jax (TDAC) ／ Ivan (ALNST) ／ Luka (ALNST) ／ Kaworu Nagisa (NGE)</p>
   </div>
