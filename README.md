@@ -205,22 +205,14 @@
   </div>
 </details>
 
-
 <details>
   <summary><ins>❴ 𝕲𝗔𝗠𝝣𝗦 ❵</ins></summary>
 
   <div align="center">
-    <p>to be edited, sory／</p>
+    <p>to be edited, sorry／</p>
   </div>
-</details>
-<p>ㅤㅤ</p>
-<div align="center">
-<p>ㅤㅤ</p>
-
-<details>
   <summary><ins>❴ 𝕸𝖴𝖲𝗜𝗖 ❵</ins></summary>
-
-  <div align="center">
+  
     <b>BANDS</b>
     <p>𝗟𝗼𝘃𝗲𝗷𝗼𝘆 ／ 𝗖𝘂𝗮𝗿𝘁𝗲𝘁𝗼 𝗱𝗲 𝗡𝗼𝘀 ／ Mägo de Oz  ／ ПЛМ ／ Ghost ／ Get Scared ／ Negative XP ／ La La Love You ／ Mecano ／ And One ／ Depresión Sonora ／ HIM ／ Mindless Self Indulgence ／ Molchat Doma</p>
 <p> </p>
