@@ -178,7 +178,7 @@
     <p>Countryhumans ／ Hetalia ／ Formula 1 ／ Alien Stage ／  Neon Genesis Evangelion ／ SFAWTDE.
     <p></p>
     <b>Other Fandoms:</b>
-    <p>FNAF ／ TDAC ／ HSR ／Mogeko Castle ／ Alfred's Playhouse ／ House of Puso ／ Moral Orel ／ Girl's Last Tour ／ Unicorn Wars ／ DSAF ／ Law of Talos ／ MuseARG ／ 13 Cards ／ Hellsing ／ Ranfren ／ DSMP ／ PASWG ／ </p>
+    <p>FNAF ／ TDAC ／ HSR ／Mogeko Castle ／ Alfred's Playhouse ／ House of Puso ／ Moral Orel ／ Girl's Last Tour ／ LITC ／ Unicorn Wars ／ DSAF ／ Law of Talos ／ MuseARG ／ 13 Cards ／ Hellsing ／ Ranfren ／ DSMP ／ PASWG ／ </p>
   </div>
 </details>
 
@@ -193,7 +193,7 @@
 <b>Favorite Characters:</b>
     <p>Gilbert Beilschmidt (APH) ／ Sadik Adnan (APH) ／ Antonio Fernández (APH) ／ Lovino Vargas (APH) ／ Ivan (ALNST) ／ Kaworu Nagisa (NGE) ／ Rei Ayanami (NGE) ／ Will Graham (Hannibal) ／ RevivedBur (DSMP) ／ PogBur (DSMP) ／ GhostBur (DSMP)  ／ D3rlord3 (SFAWTDE) ／  Scratch (TADC)</p>
 <b>Fictionkins:</b>
-    <p>Jax (TDAC) ／ Ivan (ALNST) ／ Luka (ALNST) ／ Kaworu Nagisa (NGE)</p>
+    <p>Jax (TDAC) ／ Ivan (ALNST) ／ Luka (ALNST) ／ Cirrus (LITC) ／ Kaworu Nagisa (NGE)</p>
   </div>
 </details>
 
@@ -209,7 +209,7 @@
   <summary><ins>❴ 𝕲𝗔𝗠𝝣𝗦 ❵</ins></summary>
 
   <div align="center">
-    <p>to be edited, sorry／</p>
+        <p>Pony Town ／ Resident Evil  ／ Devil May Cry ／ Silent Hill ／ Needy Streamer Overload／ Doom ／ Forsaken ／ Evade ／ Peta Peta ／ Dead Space ／ The Evil Within ／ Metal Gear Rising／ Left 4 Dead ／ Postal ／ Cry Of Fear ／ Call of Duty ／ Hotline Miami ／ Valorant ／ Minecraft ／ Honkai Star Rail ／ FNAF  ／  DSAF</p>
   </div>
   </div>
 </details>
