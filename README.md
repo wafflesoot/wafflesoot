@@ -99,6 +99,7 @@
   <summary><ins>⚠︎ 𝕮𝗔𝗨𝗧𝗜𝗢𝗡 ⚠︎</ins></summary>
 
   <div align="center">
+        <p>I bite.</p>
     <p>I have behavioral issues, always interact with EXTREME caution OR JUST DON'T INTERACT AT ALL.</p>
     <p>Confrontational and can become hostile towards you.</p>
     <p>I push myself away from people at times even if i like you, I usually tend to be very avoidant, and I tend to ghost friends, please don't take it personally.</p>
@@ -203,6 +204,18 @@
     <p>Reading, especially philosophy, history, psychology, and political theory. ／ Learning languages and collecting random linguistic facts. ／ Studying humanities, particularly history, psychology, politics, and linguistics. ／ Being an european history enthusiast. ／ Character and media analysis. ／ Having deep conversations about morality, identity, society, philosophy, and human behavior. ／ Questioning everything and making other people question everything too. ／ Researching and creating true crime content for hours on end. ／ Going down historical, political, and psychological rabbit holes. ／ Cosplaying and attending conventions. ／ Volunteering and participating in social aid programs. ／ Supporting community projects and humanitarian organizations. ／ Watching documentaries. ／ Playing the violin and piano (poorly, passionately, or both). ／ Writing pages and pages of content, coding, and then somehow writing even more. ／ Rereading books and comics I already know I'll enjoy (I refuse to leave my comfort zone when it comes to media). ／ Sleeping. ／ Drawing whenever I can defeat my own laziness. ／ Spending Formula 1 weekends completely unavailable to society (Fernando Alonso is my GOAT). ／ Learning simply for the sake of learning. ／ Trying to understand why people think, behave, and believe the things they do. ／ Being the unofficial archivist of my own interests. I LOVE learning more about myself every day.</p>
   </div>
 </details>
+
+
+<details>
+  <summary><ins>❴ 𝕲𝗔𝗠𝝣𝗦 ❵</ins></summary>
+
+  <div align="center">
+    <p>to be edited, sory／</p>
+  </div>
+</details>
+<p>ㅤㅤ</p>
+<div align="center">
+<p>ㅤㅤ</p>
 
 <details>
   <summary><ins>❴ 𝕸𝖴𝖲𝗜𝗖 ❵</ins></summary>
