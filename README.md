@@ -241,6 +241,13 @@
 <br>
   <sub><b>𝕻𝗥𝗢𝗠𝗜𝗦𝗘 𝖨'𝖫𝖫 𝖡𝖤 𝖪𝖨𝖭𝖣 𝕭𝖴𝖳 𝗜 𝐖𝚯𝚴'𝚻 𝗦𝗧𝗢𝗣 𝖴𝖭𝖳𝖨𝖫 𝖳𝖧𝖠𝖳 𝗕𝗢𝗬 𝖨𝖲 𝖬𝖨𝖭𝖤. ♡</b></sub>
 <br>
+  
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31zudxggfn6b7bfcdgy3h7hcz2gy&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zudxggfn6b7bfcdgy3h7hcz2gy&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false&mode=light">
+  </a>
+</p>
+  
 <p align="center">
   <img src="https://files.catbox.moe/1rrg2z.png" width="500" />
   <p> ㅤㅤ</p>
