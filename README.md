@@ -211,6 +211,10 @@
   <div align="center">
     <p>to be edited, sorry／</p>
   </div>
+  </div>
+</details>
+
+<details>
   <summary><ins>❴ 𝕸𝖴𝖲𝗜𝗖 ❵</ins></summary>
   
     <b>BANDS</b>
