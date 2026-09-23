@@ -214,6 +214,7 @@
   </div>
 </details>
 
+<div align="center">
 <details>
   <summary><ins>❴ 𝕸𝖴𝖲𝗜𝗖 ❵</ins></summary>
   
@@ -225,6 +226,7 @@
   </div>
 </details>
 
+  <div align="center">
 <details>
   <summary><ins>❴ 𝕱𝗜𝗟𝖬𝖲 + 𝕾𝗘𝗥𝖨𝖤𝖲 ❵</ins></summary>
 
