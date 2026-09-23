@@ -213,11 +213,14 @@
   </div>
   </div>
 </details>
+  <div align="center">
 
-<div align="center">
+</details>
+
 <details>
   <summary><ins>❴ 𝕸𝖴𝖲𝗜𝗖 ❵</ins></summary>
-  
+
+  <div align="center">
     <b>BANDS</b>
     <p>𝗟𝗼𝘃𝗲𝗷𝗼𝘆 ／ 𝗖𝘂𝗮𝗿𝘁𝗲𝘁𝗼 𝗱𝗲 𝗡𝗼𝘀 ／ Mägo de Oz  ／ ПЛМ ／ Ghost ／ Get Scared ／ Negative XP ／ La La Love You ／ Mecano ／ And One ／ Depresión Sonora ／ HIM ／ Mindless Self Indulgence ／ Molchat Doma</p>
 <p> </p>
@@ -225,6 +228,8 @@
     <p>𝗪𝗶𝗹𝗯𝘂𝗿 𝗦𝗼𝗼𝘁 ／ 𝗠𝗶𝘁𝘀𝗸𝗶 ／ Lana Del Rey ／ Jack Stauber ／ Quevedo ／ Mukka ／ Lady Gaga ／ Tyler The Creator ／ McCafferty ／ Alex G</p>
   </div>
 </details>
+
+<details>
 
   <div align="center">
 <details>
